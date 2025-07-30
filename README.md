@@ -7,7 +7,7 @@ About me :
 
 ∘₊✧──────✧₊∘
 
-Aezra/ishmael ◆ he/him/we/us ◆ 16
+Aezra/ishmael/meddy ◆ he/him/we/us ◆ 16
 
 
 ![](https://files.catbox.moe/4q2b0b.webp)
@@ -24,7 +24,7 @@ Aezra/ishmael ◆ he/him/we/us ◆ 16
 
 ───♡──────────────
 
- ♡ Interests & More!
+ ♡ Extras!
  
 ┇Timezone: UTC+02:00
 
@@ -33,6 +33,7 @@ Aezra/ishmael ◆ he/him/we/us ◆ 16
 ───♡──────────────
 
 likes and additional info!
+
 ᎒ Likes · my friends/coding/quality time and sleeping
 
 ᎒ Dislikes · loud noises/stuff that triggers my bpd / subkit shippers (i like em as enemies strictly i dont see the rommance personally)
