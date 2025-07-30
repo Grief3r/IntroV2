@@ -42,3 +42,11 @@ likes and additional info!
 
 ∘₊✧──────✧₊∘
 ![](https://files.catbox.moe/k5afru.gif)
+
+MY QUALIFICATIONS AS A MEDKIT MAIN!!:
+
+![](https://files.catbox.moe/81hgs1.webp)
+
+
+![](https://files.catbox.moe/cmhsbz.webp)
+(p.s feel free to add me on rblx idm)
