@@ -18,7 +18,7 @@ Aezra/ishmael/meddy ◆ he/him/we/us ◆ 16
 
  ♡ My Favorite...
 
-┇Song: audit!
+┇Song: audit/lonely in gorgeous/fame is a gun!
 
 ┇Game: PHIGHTING!
 
@@ -26,7 +26,7 @@ Aezra/ishmael/meddy ◆ he/him/we/us ◆ 16
 
  ♡ Extras!
  
-┇Timezone: UTC+02:00
+┇Timezone: UTC+03:00
 
 ┇DM Status: semi busy / half free
 
